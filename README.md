@@ -1,3 +1,3 @@
-![image](https://i.pinimg.com/736x/59/9d/f5/599df5190b12a4f827be3a01cca0d1af.jpg)
+![image](https://cdn.discordapp.com/attachments/1333537716897583211/1345847023940927559/Untitled136_20250302205430.png?ex=67c60937&is=67c4b7b7&hm=008ff2714067fdc8134988967586e38b2875bcdc2d9a9917e94eeff3e923f8b0&)
 
 

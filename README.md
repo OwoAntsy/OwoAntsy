@@ -1,3 +1,2 @@
-![image](https://cdn.discordapp.com/attachments/1333537716897583211/1345847023940927559/Untitled136_20250302205430.png?ex=67c60937&is=67c4b7b7&hm=008ff2714067fdc8134988967586e38b2875bcdc2d9a9917e94eeff3e923f8b0&)
-
+![image](https://media1.tenor.com/m/DWLqjEER7nAAAAAd/when-they-cry-no-naku-koro-ni.gif)
 
